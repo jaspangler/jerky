@@ -8,6 +8,6 @@
 * 1 Teaspoon red pepper flakes
 * 2 Tablespoons Worcestershire sauce
 
-Trim fat and slice beef any direction into 1/8 to 1/4 inch slices.
+Trim fat and slice beef any direction into 1/8 to 1/4 inch thick slices.
 
 Mix together ingredients in a large bowl and then add beef slices to the mixture. Store in an air tight dish for twelve hours in the fridge.
