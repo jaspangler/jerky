@@ -1,4 +1,4 @@
-* 3 Pound beef round roast
+* 3 Pound beef eye round roast
 * 1 Cup soy sauce
 * 1 Cup Bragg's Liquid Aminos
 * 1 Cup brown sugar
