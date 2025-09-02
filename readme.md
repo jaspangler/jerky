@@ -12,4 +12,4 @@ Trim fat and slice beef any direction into 1/8 to 1/4 inch thick slices.
 
 Mix together ingredients in a large bowl and then add beef slices to the mixture. Store in an air tight dish for twelve hours in the fridge.
 
-Continue to [air fry](air-fry.md) and dehydrate the meat!
+Continue to [air fry](air-fry.md), [oven-dehydrate](oven-dehydrate.md)...
